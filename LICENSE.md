@@ -1,4 +1,4 @@
-# 
+# VIP Android Studio herramientas para Mac OS | Exclusivo Android Studio herramientas para PC Windows. Con procedimientos almacenados y diagramas de base de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
